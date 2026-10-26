@@ -1,4 +1,4 @@
-<img src="https://i.ibb.co.com/LhvMCD0M/Chat-GPT-Image-Oct-26-2026-04-51-24-PM.png" alt="" border="0"></a>
+<img src="https://i.ibb.co.com/LhvMCD0M/Mordern Web Designer Developer & WordPress Expert |.png" alt="" border="0"></a>
 <h3 align="center">Professional Web Designer, Developer & WordPress Expert | Helping Businesses and creators Build Stunning, Functional Websites |</h3>
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=riazulwpdev&label=Profile%20views&color=0e75b6&style=flat" alt="riazulwpdev" /> </p>
 
